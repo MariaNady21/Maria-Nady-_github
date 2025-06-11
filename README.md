@@ -52,8 +52,8 @@
 
 ### 📫 Connect With Me
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/yourprofile)
-- ✉️ Email: youremail@example.com
+- 💼 [LinkedIn](https://www.linkedin.com/in/maria-nady-77901b240/)
+- ✉️ Email:marianady025@gmail.com
 
 ---
 
